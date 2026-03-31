@@ -1,2 +1,1 @@
 # dianakcury
-Portfólio profissional
